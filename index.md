@@ -10,3 +10,5 @@ In seinem Dorf gibt es ständig Morde, die er - sehr zum Missfallen des Polizeii
 Wie Pater Brown immer sagt;
 > Gott wird ihnen verzeihen
 
+<img src="https://upload.wikimedia.org/wikipedia/en/thumb/d/dc/Father_Brown_%282013_TV_series%29_titlecard.jpg/250px-Father_Brown_%282013_TV_series%29_titlecard.jpg"/>
+
