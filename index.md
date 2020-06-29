@@ -7,3 +7,6 @@ In seinem Dorf gibt es ständig Morde, die er - sehr zum Missfallen des Polizeii
 * Ms MacCarthy: Seine konservative Haushälterin
 * Bunty: Eine ausnehmende hübsche junge Frau mit viel Geld und Freizeit
 
+Wie Pater Brown immer sagt;
+> Gott wird ihnen verzeihen
+
